@@ -1,1 +1,0 @@
-# gasanklimov.com
